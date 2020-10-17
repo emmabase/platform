@@ -1,1 +1,1 @@
-# platform
+# platform for people
